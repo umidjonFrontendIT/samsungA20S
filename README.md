@@ -1,0 +1,1 @@
+# samsungA20S
